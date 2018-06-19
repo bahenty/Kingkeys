@@ -1,1 +1,1 @@
-# [kingskey.com](https://amirrkhan.github.io/kingskey/)
+# [kingskey.com](https://bahenty.github.io/Kingkeys/)
