@@ -1,2 +1,1 @@
-# Kingkeys
-World game industry
+# [kingskey.com](https://amirrkhan.github.io/kingskey/)
